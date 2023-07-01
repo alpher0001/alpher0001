@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alpher0001
 - 👀 I’m interested in coding & mathamatics.
-- 🌱 I’m currently in my high school (last year) .
+- 🌱 I’m currently in my high school (last year) i.e 12th grade not collage .
 - 💞️ I’m looking to collaborate on  nothing currently nvm.
 - 📫 How to reach me : Ya take my dc " alpher0001 " .
   
